@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @Prasanna-Gayathri
-- 👀 I’m interested 
-- 🌱 I’m currently learning
 - 📫 How to reach me prasannagayathri711@gmail.com
 - 😄 Pronouns: she/her
 
