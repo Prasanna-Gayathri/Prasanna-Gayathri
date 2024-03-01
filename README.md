@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Prasanna-Gayathri
-- 📫 How to reach me prasannagayathri711@gmail.com
+- 📫 How to reach me tsprasannagayathri159@gmail.com
 - 😄 Pronouns: she/her
 
 
